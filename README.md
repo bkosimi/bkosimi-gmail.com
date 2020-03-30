@@ -1,1 +1,1 @@
-# bkosimi-gmail.com
+# bkosimi
